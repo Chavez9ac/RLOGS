@@ -1,3 +1,4 @@
+
 repository for english 235 
 I am Alejandro Chavez a running start student at pierce college i am a junior in highschool. I participate in school sports the sports are varsity football and varsity soccer for football i am the kicker. for soccer i am the foward centermid and outside midfielder. i have my own landscaping business i am very ambitious i want to have a huge company i think i am capable of this because in little amount of time ive been able to get many customers.
 i thought techincal writing was writing using technology. i didnt know what the hell to expect from this class this class is very dsifferent then what i thought it would have been now i know we make instructions much simpler then they should be so many different types of people can understand how to use a certain product or prorgram 
@@ -6,7 +7,7 @@ this text looks like something you would read for instructions or give out instr
 this week ive learned many things i learned how github works what technical writing in general is! and how it works. i learned how to do my first instructions paper as well.
 
 
-#week2
+# week2
 this week in class we made instructions for our lego creations i created my instructions online. i chose to add pictures to my instrctions so i could be as precise as possible. i want the person reading my instructions to know exactly what it is i want them to do with the lego pieces. 
 my intention is for kids to read my instructions in class it is going to be students but my main target is kids because what kind of kids dont like race cars and legos? they've been able to make my writing simpler.
 i chose google docs because it is quick easy accesible and professional. it just shows id rather write on a plat form im used to.
