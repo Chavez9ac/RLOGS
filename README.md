@@ -12,3 +12,4 @@ this week in class we made instructions for our lego creations i created my inst
 my intention is for kids to read my instructions in class it is going to be students but my main target is kids because what kind of kids dont like race cars and legos? they've been able to make my writing simpler.
 i chose google docs because it is quick easy accesible and professional. it just shows id rather write on a plat form im used to.
 this week i learned that i personally enjoy technical writing i didnt think it would be fun but writing steps to how to do something really isnt that difficult. it is very enjoyable and easy.
+feed back that i recieved is i should keep adding in progress pictures to the steps mainly step 6 and 7 because my classmate didnt understand where i wanted the dome and the 2x6 lego piece to go. but overall he felt it was fairly easy
