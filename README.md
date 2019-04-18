@@ -1,4 +1,4 @@
-
+# week1
 repository for english 235 
 I am Alejandro Chavez a running start student at pierce college i am a junior in highschool. I participate in school sports the sports are varsity football and varsity soccer for football i am the kicker. for soccer i am the foward centermid and outside midfielder. i have my own landscaping business i am very ambitious i want to have a huge company i think i am capable of this because in little amount of time ive been able to get many customers.
 i thought techincal writing was writing using technology. i didnt know what the hell to expect from this class this class is very dsifferent then what i thought it would have been now i know we make instructions much simpler then they should be so many different types of people can understand how to use a certain product or prorgram 
