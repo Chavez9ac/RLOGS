@@ -4,6 +4,8 @@ i thought techincal writing was writing using technology. i didnt know what the 
 the programing historian facilitates how to find complex or simple information and gives us the understanding to be able to teach those who need instruction. the audience for programing historian is for those who want to become technical writers. pierce hacker is for those who want to begin to program or begin to technical write. and can also look at other peoples work for ideas.
 this text looks like something you would read for instructions or give out instructions it has a very proffesional outlook with very good organization having settings near profile and then has a section for each different thing you want to do like issues or projects or even pull requests.
 this week ive learned many things i learned how github works what technical writing in general is! and how it works. i learned how to do my first instructions paper as well.
+
+
 #week2
 this week in class we made instructions for our lego creations i created my instructions online. i chose to add pictures to my instrctions so i could be as precise as possible. i want the person reading my instructions to know exactly what it is i want them to do with the lego pieces. 
 my intention is for kids to read my instructions in class it is going to be students but my main target is kids because what kind of kids dont like race cars and legos? they've been able to make my writing simpler.
