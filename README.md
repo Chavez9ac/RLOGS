@@ -14,4 +14,5 @@ i chose google docs because it is quick easy accesible and professional. it just
 this week i learned that i personally enjoy technical writing i didnt think it would be fun but writing steps to how to do something really isnt that difficult. it is very enjoyable and easy.
 feed back that i recieved is i should keep adding in progress pictures to the steps mainly step 6 and 7 because my classmate mitch rosaaen didnt understand where i wanted the dome and the 2x6 lego piece to go. but overall he felt it was fairly easy he thought it was organised and had a goog layout 
 this is my link to my instrctuins piece
-https://docs.google.com/document/d/1Y7jJPftWzs-iAqOrmPcXKeeIbmT3vXqRkLOkXvsOTxU/edit?usp=sharing
+https://docs.google.com/document/d/1Y7jJPftWzs-iAqOrmPcXKeeIbmT3vXqRkLOkXvsOTxU/edit?usp=
+sharing
