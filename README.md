@@ -13,3 +13,8 @@ this week i learned that i personally enjoy technical writing i didnt think it w
 feed back that i recieved is i should keep adding in progress pictures to the steps mainly step 6 and 7 because my classmate mitch rosaaen didnt understand where i wanted the dome and the 2x6 lego piece to go. but overall he felt it was fairly easy he thought it was organised and had a goog layout 
 this is my link to my instrctuins piece
 [link for my instructions](https://docs.google.com/document/d/1Y7jJPftWzs-iAqOrmPcXKeeIbmT3vXqRkLOkXvsOTxU/edit?usp=sharing)
+
+
+# week3
+ This week i did many things i began by learning what a survey was and asking questions for a survey we had to have our questions finalized by thursday so jason could have them finished for us to get started on monday after the friday that he was gone in.
+	My personal outcomes stay the same because my main focus is still trying to learn how to write instructions as simple as possible and i’m doing so by figuring out what peers from my college struggle in using. To continue moving forward with my personal outcomes i believe staying open to learning about new sources and being able to explain in a deeper way will help me accomplish my personal goals/outcomes
