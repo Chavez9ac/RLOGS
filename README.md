@@ -18,3 +18,4 @@ this is my link to my instrctuins piece
 # week3
  This week i did many things i began by learning what a survey was and asking questions for a survey we had to have our questions finalized by thursday so jason could have them finished for us to get started on monday after the friday that he was gone in.
 	My personal outcomes stay the same because my main focus is still trying to learn how to write instructions as simple as possible and i’m doing so by figuring out what peers from my college struggle in using. To continue moving forward with my personal outcomes i believe staying open to learning about new sources and being able to explain in a deeper way will help me accomplish my personal goals/outcomes
+# week4
